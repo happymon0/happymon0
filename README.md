@@ -1,1 +1,1 @@
-i made this acc for me lol
+i made this acc for myself, dont bother me~
